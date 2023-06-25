@@ -1,3 +1,2 @@
 ### Inshallah brother we will fix this bug
-
-![FB_IMG_1676728020379](https://user-images.githubusercontent.com/36992813/224102441-90c8c626-2451-4728-8fed-6156da1a826d.jpg)
+![image](https://github.com/maj113/maj113/assets/36992813/bfbee136-ad4e-4f42-91fa-cb2b8bd00035.jpg)
